@@ -1,3 +1,1 @@
 # memoranovo
-# memorarealesse
-# memorarealesse

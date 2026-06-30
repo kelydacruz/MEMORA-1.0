@@ -1,0 +1,3 @@
+# memoranovo
+# memorarealesse
+# memorarealesse
